@@ -1,3 +1,4 @@
 About me...
 
-![meofcode](https://user-images.githubusercontent.com/68974040/137972341-4ffb3a09-924d-4105-8874-f44d22dabee2.PNG)
+
+![carbon](https://user-images.githubusercontent.com/68974040/141354738-6e6b226b-7827-4b4d-9592-70f98747704f.png)
